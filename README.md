@@ -1,0 +1,1 @@
+# TugasKecerdasanBuatan_Sesi14
